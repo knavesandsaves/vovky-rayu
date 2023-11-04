@@ -1,0 +1,1 @@
+KNAVES & SAVES and the moth logos are trademarks of Knaves and Saves LLC. Vovky Rayu is protected under the copyright laws of the United States of America. Except where noted, any reproduction or unauthorized use of the material or artwork contained herein is prohibited without the express written permission of Knaves and Saves LLC
